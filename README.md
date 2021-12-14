@@ -1,1 +1,0 @@
-# Men-and-women-equal-in-the-eyes-of-the-media-
